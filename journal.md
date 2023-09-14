@@ -8,7 +8,14 @@ I did code combat for half an hour
 i did code combat for half an hour
 # September 8, 2023
 i did code combat for half an hour
-
+# september 11, 2023
+went to 9/11 ceremony
+# september 12, 2023
+abent
+# september 13, 2023
+code combat
+# september 14, 2023
+code combat
 
 
 
