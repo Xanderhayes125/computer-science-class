@@ -20,6 +20,10 @@ code combat
 5 levels of code combat
 # September 25-29, 2023
 code combat and baseball coding and film
-
-
+# october 2-6
+hour of code
+# october 9-13
+code combat
+# october 16-20
+hour of code
 
